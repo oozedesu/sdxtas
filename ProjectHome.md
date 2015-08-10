@@ -1,0 +1,1 @@
+SFC 星のカービィ スーパーデラックス(Kirby Super Star) TAS project.
